@@ -1,1 +1,3 @@
-# .github
+# *I Can Do All Things Through Christ who strengthens me*
+## *"I can do all things through Christ who strengthens me" isn’t about doing more—it’s about needing less and trusting Him more. As you continue on your path, keep returning to this truth: "I can do all things through Christ who strengthens me." Let it be your anthem, your reminder, and your source of hope. Together, let's walk in faith, knowing that nothing is impossible when we rely on Him. Stay encouraged, stay empowered, and keep shining His light! 🌟 🙏 Share this with someone who needs encouragement today!* [More details…](https://spiritualkhazaana.com/web-stories/i-can-do-all-things-through-christ/)
+## #icandoallthingsthroughchristwhostrengthensme #icandoallthingsthroughchrist #youcandoallthingsthroughchrist #HiddenMeaningofPhilippians4:13 #BiblicalStrengthinAdversity #Paul’sMessagefromPrison #TrueContextofICanDoAllThings #FaithandContentmentthroughChrist
